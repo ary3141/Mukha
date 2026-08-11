@@ -40,4 +40,4 @@ Coming Soon
 
 **Support Email**
 
-support@example.com
+donnirichasdy@gmail.com
