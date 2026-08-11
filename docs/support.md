@@ -10,7 +10,7 @@ If you encounter any issues, have questions, or would like to provide feedback, 
 
 **Support Email**
 
-support@example.com
+donnirichasdy@gmail.com
 
 ---
 
