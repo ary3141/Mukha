@@ -143,7 +143,7 @@ For questions regarding this Privacy Policy, please contact:
 
 **Support Email**
 
-support@example.com
+donnirichasdy@gmail.com
 
 ---
 
