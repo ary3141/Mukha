@@ -112,7 +112,7 @@ If you have questions regarding these Terms and Conditions, please contact:
 
 **Support Email**
 
-support@example.com
+donnirichasdy@gmail.com
 
 ---
 
